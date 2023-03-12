@@ -1,1 +1,1 @@
-Creater:        https://xyl.lol/zexo 
+Password  https://xyl.lol/zexo 
